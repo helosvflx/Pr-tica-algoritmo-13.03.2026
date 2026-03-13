@@ -1,0 +1,1 @@
+# Pr-tica-algoritmo-13.03.2026
